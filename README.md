@@ -1,10 +1,10 @@
 18萝莉最新地址
 
-最新地址一：https://www.18ll12.xyz
+最新地址一：https://ll.18ll17.xyz
 
-最新地址二：https://www.18ll14.xyz
+最新地址二：https://ll.18ll19.xyz
 
-最新地址三：https://www.18ll16.xyz
+最新地址三：https://ll.18ll20.xyz
 ******************
 新地址获取方法一：
 williamgammondj@gmail.com
